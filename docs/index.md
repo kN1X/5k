@@ -7,5 +7,5 @@ Dear infozeaLuser, you can tip me anywhere, here:
 
 ### Regards, [@itsN1X](https://about.me/itsN1X)
 
-#### Hobbyist blockhead, [~~~N1X.site~~~bymeNETWORK](https://2by.me)
+#### Hobbyist blockhead, [~~N1X.site~~bymeNETWORK](https://2by.me)
 
